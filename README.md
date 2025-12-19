@@ -1,4 +1,4 @@
-<img width="1280" height="320" alt="1000128758" src="https://github.com/user-attachments/assets/2ed5046b-9a61-430f-9940-9b6ec12171b5" />
+<img width="1280" height="320" alt="1000128791" src="https://github.com/user-attachments/assets/f621af6a-f013-4443-ae39-c38e432b0547" />
 
 # About Myself
 ## Hello There..
