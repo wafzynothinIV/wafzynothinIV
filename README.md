@@ -4,6 +4,9 @@
 ## Hello There..
 I'm Wafzy. And I feel spending my empty time in this will be meaningful? i don't know I'm just a person being bored easily.
 
+## My Thoughts in myself
+"i'm making a repository even my repository kinda useless in the future time."
+
 ## My Activity?
 - 💤 Sleep
 - ⌨️ Typing Something in dream.
