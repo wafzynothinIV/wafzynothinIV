@@ -2,7 +2,7 @@
 
 # About Myself
 ## Hello There..
-I'm Wafzy. And I feel spending my empty time in this will be meaningful? i don't know I'm just a person being bored easily.
+I'm Wafzy. And I was a too new here... (dw i'm already old enough.)
 
 ## My Thoughts in myself
 "i'm making a repository even my repository kinda useless in the future time."
